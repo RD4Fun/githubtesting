@@ -2,10 +2,10 @@
 testing
 
 
-DOUG WASS HERE
+DOUG WAS HERE
 
 
 wassup taosters ???
 
 
-gfjghfjhfdjgsfkhgcgcjfdxjfhcfc
+the brown fox jumped over the lazy dog
